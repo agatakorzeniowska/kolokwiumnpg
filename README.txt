@@ -1,1 +1,2 @@
 Agata Korzeniowska
+A. Korzeniowska
